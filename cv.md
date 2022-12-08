@@ -1,6 +1,6 @@
 # **Anastasiia Fokina**
 
-*29 y.o., Zaporizhzhia, Ukraine*
+*3.07.1993, Zaporizhzhia, Ukraine*
 
 ### **Education**
 Ukrainian State Chemical Technology University, Master's Degree in Biotechnology, (2010-2016)
